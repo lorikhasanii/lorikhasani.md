@@ -1,1 +1,1 @@
-# lorikhasani.md
+![algoritme](https://media.discordapp.net/attachments/1243667768406966272/1243667965384065034/Screenshot_3.png?ex=6652f84d&is=6651a6cd&hm=88ef651ce985bf3601961fe906a7bff51c85a1b61a90fbe28974459e7b2df23b&=&format=webp&quality=lossless&width=782&height=619)
